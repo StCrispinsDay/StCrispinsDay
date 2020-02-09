@@ -1,0 +1,2 @@
+# StCrispinsDay
+Name comes from God's victories over tremendous forces of Satanism/Papal BS! City union teacher with non-red-pilled/red pilled friends/students-POTUS is popular! I follow back at 5000+ Gabs usually : >  I teach hist. Fed Reserve/no audit for 100 years+ and 800,000 missing kids relate it to Dem city control, theft!!  Clintons Obamas Fed MS-13 Failed Inner Cities sore points for Dems-Banned from Twitter 1 yr + #MAGA #WWG1WGA #QAnon #Q #TrustThePlan #GreatAwakening #TheGreatAwakening #RedPill  
